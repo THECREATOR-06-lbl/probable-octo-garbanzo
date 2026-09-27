@@ -1,0 +1,1 @@
+Replace name, logo, photos, services, prices, address, map, hours, WhatsApp, phone, email and social links before delivery.
